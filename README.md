@@ -34,6 +34,7 @@ NYC Bucket List
 * **Peter Luger's**
 * Shake Shack - *Madison Square Park, Tribeca, Brooklyn, anywhere really*
 * Sylvia's
+* Hot chocolate at City Bakery
 
 
 #### Places to Visit / See
