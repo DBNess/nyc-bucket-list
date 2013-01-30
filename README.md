@@ -24,6 +24,7 @@ NYC Bucket List
 * Burger Joint at Le Parker Meridien
 * Candle Cafe
 * Caracas Arepas Bar
+* City Bakery - *hot chocolate! deliciously intense + has a gigantic homemade marshmallow on top*
 * Grimaldi's
 * Harry's Cafe for brunch, and for steak
 * Ivo & Lulu - *be sure to BYOB*
@@ -34,7 +35,6 @@ NYC Bucket List
 * **Peter Luger's**
 * Shake Shack - *Madison Square Park, Tribeca, Brooklyn, anywhere really*
 * Sylvia's
-* Hot chocolate at City Bakery
 
 
 #### Places to Visit / See
